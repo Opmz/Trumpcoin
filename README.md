@@ -1,1 +1,1 @@
-Trumpcoin Making Altcoins Great Again! 1 Coin will = $8,000
+Trumpcoin will equal 5K by the end of Jan. 2018
